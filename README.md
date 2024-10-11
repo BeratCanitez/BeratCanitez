@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @BeratCanitez
-- 👀 I’m interested in sports, esspecially football(it is not called soccer)
+- 👀 I’m interested in sports, especially football.
 - 📫 How to reach me = beratcntz0@gmail.com
 
 <!---
